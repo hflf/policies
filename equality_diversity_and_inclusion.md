@@ -152,6 +152,18 @@ The Company has a duty to make reasonable adjustments to facilitate the employme
     
 7.8.  Any other adjustments that the Company considers reasonable and necessary provided such adjustments are within the financial means of the Company.
 
+While it is not possible to list all such circumstances, some examples of areas where we may make reasonable adjustments not covered by the Equality Act, The Company seeks to support its staff beyond these restrictions, as a result, the COMPANY will also consider the following:
+
+7.9.  Providing information in different languages, or translation and interpreting services for people whose first language is not English; 
+
+7.10.  Providing additional support to employees with literacy problems;
+
+7.11.  Providing additional support to the employee’s who need it because of physical, emotional or mental infirmity;
+
+7.12.  Providing additional support to employee’s who have communication or learning difficulties; and
+
+7.13.  Providing support to carers and advocates for employees with special needs.
+
 If an employee has a disability and feels that any such adjustments could be made by the Company, they should contact the Designated Officer.
 
 ## 8. Responsibility for the Implementation of this Policy
